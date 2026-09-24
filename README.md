@@ -1,6 +1,6 @@
 </p>
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=skybuiider&color=orange" alt="watching_count" />
+<img src="https://komarev.com/ghpvc/?username=skybuiider&color=f55e3d&style=flat-square&label=﹒" alt="watching_count" />
 </p>
 
 <p align="center">
@@ -11,8 +11,8 @@
   <table>
     <tr>
       <td>
-     $${\color{#edb058}⠀⠀⠀⠀⠀I⠀can't⠀tell⠀if⠀you're⠀blessing⠀us}$$
-   $${\color{#d75b5b}or⠀cursing⠀us⠀⠀⠀⠀⠀}$$ <br>
+     $${\color{#edb058}⠀⠀⠀I⠀digitize⠀my⠀death}$$
+   $${\color{#d75b5b}⠀⠀⠀there'll⠀be⠀no⠀rest⠀⠀⠀⠀⠀}$$ <br>
       </td>
     </tr>
   </table>
