@@ -1,45 +1,35 @@
+<p align="left"><img width="310" src="https://file.garden/aLDFbcUbukO-dImp/fdfsfsf.png" align="left" /></p>
 </p>
-<p align="center">
-<img src="https://komarev.com/ghpvc/?username=skybuiider&color=f55e3d&style=flat-square&label=﹒" alt="watching_count" />
-</p>
-
-<p align="center">
-<img src="https://file.garden/aLDFbcUbukO-dImp/bmonpi1.png"width="445" height="111" />
+<p align="left">
+<img src="https://komarev.com/ghpvc/?username=skybuiider&color=e2bf9c&style=flat-square&label=﹒" alt="watching_count" />
 </p>
 
-<p align="center"><img width="310" src="https://file.garden/aLDFbcUbukO-dImp/bmonpi255.png" align="right" width="300" /></p>
-  <table>
-    <tr>
-      <td>
-     $${\color{#edb058}⠀⠀⠀I⠀digitize⠀my⠀death}$$
-   $${\color{#d75b5b}⠀⠀⠀there'll⠀be⠀no⠀rest⠀⠀⠀⠀⠀}$$ <br>
-      </td>
-    </tr>
-  </table>
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ lucas / sean
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀he⠀⠀it⠀⠀⠀⠀⠀⠀⠀19
-
-<p align="center"><img width="310" src="https://file.garden/aLDFbcUbukO-dImp/bmonpi33.png" align="left" width="300" /></p>
-
-
+</p>
+<p align="left">
+lucas⠀⠀ᵒʳ⠀ᵏʸˡᵉ<br>
+ ⠀⠀ he⠀it⠀⠀19<br>
+  ⠀<br>
+<img src="https://file.garden/aLDFbcUbukO-dImp/Untitled354_20260926223804.png" width = 200/>
+</p>
 
 <details>
 
-  <summary> ${\textsf{\color{#e39d52} ⭔}}$ ${\textsf{\color{#eeece4}  shared rentries }}$ </summary>
+  <summary> info </summary><br>
+  tkn by <a href="https://github.com/swoocket">@swoocket</a><br>
+  8w9 sp872 chol-phleg<br>
+  neurodivergent
 
-<p align="left">
-<a href="https://rentry.co/decayduo">decay duo</a> ⠀
-  ⌗⠀
-<a href="https://rentry.co/threeneighbors">three neighbours</a>
-  </p>
 </details>
 
+⠀⠀⠀<a href="https://builds.atabook.org/">atabook</a>⠀⠀<a href="https://builds.straw.page/">strawpage</a><br>
+⠀<br>
+<img src="https://file.garden/aLDFbcUbukO-dImp/Untitled354_20260926223804.png" width = 200/><br>
+⠀<br>
+⠀< frio⠀<a href="https://rentry.co/threeneighbors">tn</a>⠀4eu⠀nc 3
 
-<p align="left">
-<a href="https://builds.atabook.org/">
-  <img src="https://file.garden/aLDFbcUbukO-dImp/atabooks.png" width="79">
-  
-<a href="https://builds.straw.page/">
-  <img src="https://file.garden/aLDFbcUbukO-dImp/Untitled324_20260831220424.png" width="100">
-</a>
+
+
+
+
+
+
