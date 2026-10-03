@@ -16,7 +16,7 @@ lucas⠀⠀ᵒʳ⠀ᵏʸˡᵉ<br>
 
   <summary> info </summary><br>
   tkn by <a href="https://github.com/swoocket">@swoocket</a><br>
-  8w9 sp872 chol-phleg<br>
+  8w7 sp845 chol-phleg<br>
   neurodivergent
 
 </details>
