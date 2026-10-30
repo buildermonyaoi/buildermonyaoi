@@ -30,7 +30,6 @@ lucas⠀⠀ᵒʳ⠀ᵏʸˡᵉ<br>
 ⠀
 ⠀
 
-⠀sugoii nyaaa~~~~ @avatar-archive archive my paw submission too~~~~ LLL
 
 ⠀
 ⠀
