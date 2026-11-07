@@ -35,7 +35,7 @@ baby's first account nomination <a href="https://github.com/pt-everypony">@pt-ev
 ⠀
 ⠀
 ⠀
-⠀
+⠀remaking this absolkutely awful readme im gonna cry
 ⠀
 ⠀
 ⠀
