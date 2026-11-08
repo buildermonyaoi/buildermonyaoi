@@ -21,7 +21,7 @@
 </details>
 <p align="right">
 <img src="https://komarev.com/ghpvc/?username=skybuiider&color=e2bf9c&style=flat-square&label=﹒" alt="watching_count" /><br>
-<a href="https://builds.straw.page/"><img src="https://file.garden/aLDFbcUbukO-dImp/strawpp.png" width="90"></a> ⠀ <a href="https://builds.straw.page/"><img src="https://file.garden/aLDFbcUbukO-dImp/gbook.png" width="90"></a>
+<a href="https://builds.straw.page/"><img src="https://file.garden/aLDFbcUbukO-dImp/strawpp.png" width="90"></a> ⠀ <a href="https://builds.atabook.org/"><img src="https://file.garden/aLDFbcUbukO-dImp/gbook.png" width="90"></a>
 
 ⠀
 ⠀
