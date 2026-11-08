@@ -1,48 +1,28 @@
-<p align="left"><img width="310" src="https://file.garden/aLDFbcUbukO-dImp/fdfsfsf.png" align="left" /></p>
-</p>
+<img src="https://file.garden/aLDFbcUbukO-dImp/sshhd1.png" width = 200 align="left">
 <p align="left">
-<img src="https://komarev.com/ghpvc/?username=skybuiider&color=e2bf9c&style=flat-square&label=﹒" alt="watching_count" />
-</p>
+ ⠀⫍⠀⠀⠀⠀lucas⠀or⠀kyle
+<br>  
+  <table>
+    <tr>
+      <td>
+➤⠀⠀⠀he it⠀⠀  <a href="https://github.com/swoocket">taken</a><br>
+      ESTp 8w7 853 VFLE⁴³⁴¹<br>
+       why am i still on this game
+      </td>
+    </tr>
+  </table>
 
-</p>
-<p align="left">
-lucas⠀⠀ᵒʳ⠀ᵏʸˡᵉ<br>
- ⠀⠀ he⠀it⠀⠀19<br>
-  ⠀<br>
-<img src="https://file.garden/aLDFbcUbukO-dImp/Untitled354_20260926223804.png" width = 200/>
-</p>
-
+⠀<img src="https://file.garden/aLDFbcUbukO-dImp/sshhd2.png" width = 200 align="right">
 <details>
-
-  <summary> info </summary><br>
-  tkn by <a href="https://github.com/swoocket">@swoocket</a><br>
-  8w7 835 chol-phleg<br>
-  neurodivergent
+⠀  <summary> people i like  </summary><br>
+<a href="https://github.com/starsour">@starsour</a> <a href="https://github.com/swoocket">@swoocket</a> <a href="https://github.com/demiflora">@demiflora</a> <a href="https://github.com/xcryingchild">@xcryingchild</a><br>
+<a href="https://github.com/ritokac">@ritokac</a> <a href="https://github.com/heartrott">@heartrott</a> <a href="https://github.com/twilightcourtyard">@twilightcourtyard</a> <a href ="https://github.com/77crescentmoon">@77crescentmoon</a> ++ the ones i flw
 
 </details>
+<p align="right">
+<img src="https://komarev.com/ghpvc/?username=skybuiider&color=e2bf9c&style=flat-square&label=﹒" alt="watching_count" /><br>
+<a href="https://builds.straw.page/"><img src="https://file.garden/aLDFbcUbukO-dImp/strawpp.png" width="90"></a> ⠀ <a href="https://builds.straw.page/"><img src="https://file.garden/aLDFbcUbukO-dImp/gbook.png" width="90"></a>
 
-⠀⠀⠀<a href="https://builds.atabook.org/">atabook</a>⠀⠀<a href="https://builds.straw.page/">strawpage</a><br>
-⠀<br>
-<img src="https://file.garden/aLDFbcUbukO-dImp/Untitled354_20260926223804.png" width = 200/><br>
-⠀<br>
-⠀< frio⠀<a href="https://rentry.co/threeneighbors">tn</a>⠀4eu⠀nc 3
-
-⠀
-⠀
-baby's first account nomination <a href="https://github.com/pt-everypony">@pt-everypony</a>
-
-⠀
-⠀
-⠀
-⠀
-⠀remaking this absolkutely awful readme im gonna cry
-⠀
-⠀
-⠀
-
-⠀
-⠀
-⠀
 ⠀
 ⠀
 ⠀
