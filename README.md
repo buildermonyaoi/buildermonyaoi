@@ -24,7 +24,7 @@
 <a href="https://builds.straw.page/"><img src="https://file.garden/aLDFbcUbukO-dImp/strawpp.png" width="90"></a> ⠀ <a href="https://builds.atabook.org/"><img src="https://file.garden/aLDFbcUbukO-dImp/gbook.png" width="90"></a>
 
 ⠀
-⠀
+⠀nominated dock dweller <a href="https://github.com/pt-everypony">@pt-everypony</a>
 ⠀
 ⠀
 ⠀
