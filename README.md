@@ -11,14 +11,16 @@
       </td>
     </tr>
   </table>
-
-⠀<img src="https://file.garden/aLDFbcUbukO-dImp/sshhd2.png" width = 200 align="right">
-<details>
+ <details> 
 ⠀  <summary> people i like  </summary><br>
 <a href="https://github.com/starsour">@starsour</a> <a href="https://github.com/swoocket">@swoocket</a> <a href="https://github.com/demiflora">@demiflora</a> <a href="https://github.com/xcryingchild">@xcryingchild</a><br>
 <a href="https://github.com/ritokac">@ritokac</a> <a href="https://github.com/heartrott">@heartrott</a> <a href="https://github.com/twilightcourtyard">@twilightcourtyard</a> <a href ="https://github.com/77crescentmoon">@77crescentmoon</a> ++ the ones i flw
 
 </details>
+
+⠀<img src="https://file.garden/aLDFbcUbukO-dImp/sshhd2.png" width = 200 align="right">
+
+
 <p align="right">
 <img src="https://komarev.com/ghpvc/?username=skybuiider&color=e2bf9c&style=flat-square&label=﹒" alt="watching_count" /><br>
 ⠀⠀<br>
