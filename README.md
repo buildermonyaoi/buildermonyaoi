@@ -13,7 +13,7 @@
   </table>
  <details> 
 ⠀  <summary> people i like  </summary><br>
-<a href="https://github.com/starsour">@starsour</a> <a href="https://github.com/swoocket">@swoocket</a> <a href="https://github.com/demiflora">@demiflora</a> <a href="https://github.com/xcryingchild">@xcryingchild</a><br>
+<a href="https://github.com/starsour">@starsour</a> <a href="https://github.com/swoocket">@swoocket</a> <a href="https://github.com/teufel">@teufel</a> <a href="https://github.com/xcryingchild">@xcryingchild</a><br>
 <a href="https://github.com/ritokac">@ritokac</a> <a href="https://github.com/heartrott">@heartrott</a> <a href="https://github.com/twilightcourtyard">@twilightcourtyard</a> <a href ="https://github.com/77crescentmoon">@77crescentmoon</a> ++ the ones i flw
 
 </details>
