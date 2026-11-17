@@ -7,7 +7,7 @@
       <td>
 ➤⠀⠀⠀he it⠀⠀  <a href="https://github.com/swoocket">taken</a><br>
       ESTp 8w7 853 VFLE⁴³⁴¹<br>
-      ⠀⠀⠀⠀ <a href="https://rentry.co/threeneighbors">tn</a> ⠀frio⠀nc
+      ⠀⠀ <a href="https://rentry.co/threeneighbors">tn</a> frio⠀nc std
       </td>
     </tr>
   </table>
